@@ -1,4 +1,4 @@
-# Log 02 - May 13, 2026 (Buhay na!)
+# Log 02 (May 13, 2026)
 
 Short log today. But an important one.
 
